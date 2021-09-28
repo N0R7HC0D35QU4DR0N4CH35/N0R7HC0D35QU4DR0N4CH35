@@ -1,4 +1,4 @@
-### Hit there :wave:
+### Hi there :wave:
 
 My Name is Marco aka. N0RTH C0D3 B0N3Z
 I'm currently learning 'How to Code'
